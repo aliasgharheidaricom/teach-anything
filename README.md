@@ -2,8 +2,7 @@
 
 Teach you anything in seconds use AI.
 
-https://user-images.githubusercontent.com/2337506/216798367-2b5e3bc7-5cbd-4173-9ea7-0e1e85ea87dc.mov
-
+ 
 ## Sponsor
 
 <table>
